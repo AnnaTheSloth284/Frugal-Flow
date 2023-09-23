@@ -1,5 +1,4 @@
-
-![pic](https://github.com/AnnaTheSloth284/Frugal-Flow/assets/112563080/da0d7196-5567-4d44-90ba-b15d509a0477)
+![pc](https://github.com/AnnaTheSloth284/Frugal-Flow/assets/112563080/c0fbae7b-96ce-4712-ab74-38e13bf78459)
 # Frugal-Flow
 The Ambalapuzha Blasters🏴‍☠️ comprising of 
 
